@@ -18,7 +18,7 @@ Thanks for stopping by! Here's a little bit about myself...
 - Learning from people passionate about emerging technologies like Cloud Computing, Big Data,Blockchain and AI.  
 
 ## ⚡ Fun Facts:
-- I enjoy spending quality time with my kids, playing games, and exploring their interests like **Taekwondo**.  
+- I enjoy spending quality time playing sports like football,cricket and vollyball.  
 - I **love playing online games**, **chess**, and **watching sports** like football and cricket! 🎮♟️⚽🏏  
 
 ## 📫 Let's Connect:
